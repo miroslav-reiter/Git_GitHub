@@ -1,0 +1,1 @@
+prehlad nastavenia
